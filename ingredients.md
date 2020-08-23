@@ -1,4 +1,4 @@
-**__INGREDIENTS:__**
+**__PIZZA INGREDIENTS:__**
 *Makes 10-12 Inch Pizzas*
 
 🍕 - **Dough Ingredients:**
