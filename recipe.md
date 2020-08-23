@@ -13,7 +13,7 @@
 For a quick rise, place the dough in a warm place (75°F to 85°F) for 1 1/2 hours. For a medium rise, place the dough in a regular room temperature place (your kitchen counter will do fine) for 8 hours. For a longer rise, chill the dough in the refrigerator for 24 hours (no more than 48 hours). The longer the rise (to a point) the better the flavor the crust will have.
 
 **FREEZING INSTRUCTIONS:**
-*If needed.*
+(*If needed*)
 
 After the pizza dough has risen, you can freeze it to use later. Divide the dough in half (or the portion sizes you will be using to make your pizzas). Place on parchment paper or a lightly floured dish and place, uncovered, in the freezer for 15 to 20 minutes. Then remove from the freezer, and place in individual freezer bags, removing as much air as you can from the bags. Return to the freezer and store for up to 3 months. Thaw the pizza dough in the refrigerator overnight or for 5 to 6 hours. Then let the dough sit at room temperature for 30 minutes before stretching it out in the next steps.
 
