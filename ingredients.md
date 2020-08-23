@@ -1,5 +1,5 @@
-``` **__PIZZA INGREDIENTS:__** ```
-*Makes 10-12 Inch Pizzas*
+ **__PIZZA INGREDIENTS:__**
+(*Makes 10-12 Inch Pizzas*)
 
 🍕 - **Dough Ingredients:**
 
